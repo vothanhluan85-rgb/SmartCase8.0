@@ -1,0 +1,1 @@
+# SmartCase8.0
